@@ -1,4 +1,4 @@
-## Hello, World! 🌎 I'm Liz Mowrer �
+## Hello, World! 🌎 I'm Liz Mowrer 
 
 📍 Based in Chicago, Illinois  
 🎓 B.S. in Business Data Analytics, Arizona State University (May 2025, Cum Laude)
